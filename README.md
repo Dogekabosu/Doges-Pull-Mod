@@ -15,10 +15,10 @@ And also meet me in code lucio at 1:00 PM to 3:00 PM Ill be in there:D
 
 
 
-# TP
+# TP (Original Settings)
 https://github.com/user-attachments/assets/49c6fd7c-6696-4d70-8cfe-b12ce040b96e
 
-# Smooth
+# Smooth (Original Settings)
 
 https://github.com/user-attachments/assets/c5cd2966-b1ad-48ea-bb51-e125c028c734
 
